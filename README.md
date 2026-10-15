@@ -8,6 +8,9 @@
 <br><br>no strawpage, no rentry, no nothin. if you wna get
 <br>to know me just talk to me!
 <br><br>
+
+___
+
 <details><summary style="font-size: 100%;" align="center" class="mb8"><u>quick list of stuff i like cuz why not</u> </summary><p align="center"><br>my main interests are prehistoric fauna; carnotaurus, spiders, & fnaf<br><br>i love me some r&b and rap; my favorite artists are: ginuwine, 112, kwn, xzibit, & rihanna. i all so listen to EDM, goth, punk, & metal<br><br>my favorite game is splatoon (surprise), i all so like hollow knight, joseimuke games, & i been playing phigros lately<br><br>kengan ashura, transformers, & metalocalypse are some of my favorite series</p></details>
 
 ___
