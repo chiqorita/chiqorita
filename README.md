@@ -1,5 +1,14 @@
 <img align="right" src="https://file.garden/aeBUYxXpyQbZMHJ_/marina4">
-sigh...
+<br>autumn or fox, she/its, mixed afro-indigenous, '09
+<br>unlabeled transneu-fem dyke, alterhuman — 🩷
+<br>i dont typically friend up randos but i'm all for a chat ^^
+<br><br>no dni or whatever cuz thats honestly pretty wild
+<br>i'll find out if i rock with you thru talking to you
+<br>either that or ur github, sum of yall nigga's is WEIRDUH
+<br><br>no strawpage, no rentry, no nothin. if you wna get
+<br>to know me just talk to me!
+<br><br>
+<details><summary style="font-size: 100%;" align="center" class="mb8"><u>quick list of stuff i like cuz why not</u> </summary><p align="center"><br>my main interests are prehistoric fauna; carnotaurus, spiders, & fnaf<br><br>i love me some r&b and rap; my favorite artists are: ginuwine, 112, kwn, xzibit, & rihanna. i all so listen to EDM, goth, punk, & metal<br><br>my favorite game is splatoon (surprise), i all so like hollow knight, joseimuke games, & i been playing phigros lately<br><br>kengan ashura, transformers, & metalocalypse are some of my favorite series</p></details>
 
 ___
 
