@@ -1,6 +1,6 @@
 <img align="right" src="https://file.garden/aeBUYxXpyQbZMHJ_/marina4">
 <p align="center">autumn or fox, she/its, mixed afro-indigenous, '09<br>unlabeled transneu-fem dyke, alterhuman — 🩷<br>i dont typically friend up randos but i'm all for a chat</p>
-<p align="center">no dni or whatever cuz thats honestly pretty wild<br>i'll find out if i rock with you thru talking to you<br></bt>either that or ur github, sum of yall nigga's is WEIRDUH</p>
+<p align="center">no dni or whatever cuz nobody care anyway<br>i'll find out if i rock with you thru talking to you<br></bt>either that or ur github, sum of yall nigga's is WEIRDUH</p>
 <p align="center">no strawpage, no rentry, no nothin. if you wna get<br>to know me just talk to me!</p>
 
 ___
