@@ -7,7 +7,6 @@
 <br>either that or ur github, sum of yall nigga's is WEIRDUH
 <br><br>no strawpage, no rentry, no nothin. if you wna get
 <br>to know me just talk to me!
-<br><br>
 
 ___
 
