@@ -10,6 +10,7 @@ ___
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=51komtp8cyvvtcab3wuasuvt4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=52a6a7&bar_color_cover=false">
   </a>
 </p></p></details>
+
 ___
 
 ⠀⠀⠀<img width="99" height="56" alt="tumblr_2810e6350291d3fcd47a9b524e0cdc93_5e18c752_400" src="https://github.com/user-attachments/assets/4a2e1b82-79a9-40c4-a8fd-f75ed2be2bb9"/>⠀<img width="99" height="55" alt="stud2" src="https://github.com/user-attachments/assets/a392adf9-452a-4eb3-acee-5e0f81045a23"/>⠀<img width="99" height="55" alt="tumblr_pbdm6iTtOP1xz2nuuo2_100" src="https://github.com/user-attachments/assets/82e008e2-fa57-4aa0-af4d-0d6dac536000"/>
