@@ -5,7 +5,7 @@
 
 ___
 
-<details><summary style="font-size: 100%;" align="center" class="mb8"><u>quick list of stuff i like cuz why not</u> </summary><p align="center"><br>my main interests are prehistoric fauna; carnotaurus, spiders, pokemon, selfshipping (void-sharing), & fnaf<br><br>i love r&b and rap; some of my favorite artists are: ginuwine, 50 cent, kwn, xzibit, & rihanna. i all so listen to EDM, goth, punk, & metal<br><br>my favorite game is splatoon (surprise), i all so like hollow knight, joseimuke games, & i been playing phigros lately<br><br>kengan ashura, the boondocks, transformers (gen 1), & metalocalypse are some of my favorite series</p></details>
+<details><summary style="font-size: 100%;" align="center" class="mb8"><u>quick list of stuff i like cuz why not</u> </summary><p align="center"><br>my main interests are prehistoric fauna; carnotaurus, spiders, pokemon, selfshipping (non-sharing), & fnaf<br><br>i love r&b and rap; some of my favorite artists are: ginuwine, 50 cent, kwn, xzibit, & rihanna. i all so listen to EDM, goth, punk, & metal<br><br>my favorite game is splatoon (surprise), i all so like hollow knight, joseimuke games, & i been playing phigros lately<br><br>kengan ashura, the boondocks, transformers (gen 1), & metalocalypse are some of my favorite series</p></details>
 
 ___
 
