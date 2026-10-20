@@ -13,3 +13,8 @@ ___
 <p>⠀⠀⠀<img width="99" height="54" alt="stamp1" src="https://github.com/user-attachments/assets/65e7b2b6-1f45-442e-b4d8-35f490245cef"/>⠀<img width="99" height="55" alt="tumblr_6f24fd1d49001f98047f4e95fdff8e0a_261a4aeb_100" src="https://github.com/user-attachments/assets/f7ec4e26-7508-4cdb-b702-e47f1ccddfac"/>⠀<img width="99" height="55" alt="stamp2" src="https://github.com/user-attachments/assets/a7236357-2572-40ad-a9d7-6ca75bf94270"/></p>
 <p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://file.garden/aeBUYxXpyQbZMHJ_/ilovemycats?v=1792061295434"/>
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=51komtp8cyvvtcab3wuasuvt4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=true&bar_color=5ab5aa&bar_color_cover=false">
+  </a>
+</p>
