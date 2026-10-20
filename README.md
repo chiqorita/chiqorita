@@ -5,11 +5,12 @@
 
 ___
 
-<details><summary style="font-size: 100%;" align="center" class="mb8"><u>quick list of stuff i like cuz why not</u> </summary><p align="center"><br>my main interests are prehistoric fauna, spiders, pokemon, selfshipping (non-sharing), & fnaf<br><br>i love r&b & rap; some of my favorite artists are: ginuwine, 50 cent, kwn, xzibit, & rihanna. i all so listen to EDM & punk<br><br>my favorite game is splatoon (surprise), i all so like hollow knight, joseimuke games, & phigros<br><br>kengan ashura, transformers, & metalocalypse are some of my favorite series</p></details><details><summary style="font-size: 100%;" align="center" class="mb8"><u>what's autumn listenin to?</u> </summary><p align="center"><br><p align="center">
+<details><summary style="font-size: 100%;" align="center" class="mb8"><u>quick list of stuff i like cuz why not</u> </summary><p align="center"><br>my main interests are prehistoric fauna, spiders, pokemon, selfshipping (non-sharing), & fnaf<br><br>i love r&b & rap; some of my favorite artists are: ginuwine, 50 cent, kwn, xzibit, & rihanna. i all so listen to EDM & punk<br><br>my favorite game is splatoon (surprise), i all so like hollow knight, joseimuke games, & phigros<br><br>kengan ashura, transformers, & metalocalypse are some of my favorite series</p></details><details><summary style="font-size: 100%;" align="center" class="mb8"><u>what im listenin to</u> </summary><p align="center"><p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=51komtp8cyvvtcab3wuasuvt4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=5eb0a6&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=51komtp8cyvvtcab3wuasuvt4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=52a6a7&bar_color_cover=false">
   </a>
-</p>
+</p></p></details>
+  
 </p></details>
 
 ___
