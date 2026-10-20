@@ -1,10 +1,9 @@
+<img align="right" src="https://file.garden/aeBUYxXpyQbZMHJ_/marina4">
 <p align="right">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=51komtp8cyvvtcab3wuasuvt4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=5eb0a6&bar_color_cover=false">
   </a>
 </p>
-
-<img align="right" src="https://file.garden/aeBUYxXpyQbZMHJ_/marina4">
 <br><p align="center">autumn or fox, she/its, mixed afro-indigenous, '09<br>unlabeled transneu-fem dyke, alterhuman — 🩷<br>i dont typically friend up randos but i'm all for talking</p>
 <p align="center">no dni or whatever, nobody rlly gaf anyway<br>i'll find out if i rock with you either thru talking to you<br></bt>or thru ur github cuz sum of yall mfs is WEIRDUH</p>
 <p align="center">no strawpage, no rentry, no nothin. if you wna get<br>to know me just talk to me!</p>
