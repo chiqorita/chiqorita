@@ -9,7 +9,7 @@ ___
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=51komtp8cyvvtcab3wuasuvt4&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=51komtp8cyvvtcab3wuasuvt4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=5ca391&bar_color_cover=false">
   </a>
-</p>/p></details>
+</p></p></details>
 
 ___
 
