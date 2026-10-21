@@ -7,7 +7,7 @@ ___
 
 <details><summary style="font-size: 100%;" align="center" class="mb8"><u>quick list of stuff i like cuz why not</u> </summary><p align="center"><br>my main interests are prehistoric fauna, spiders, pokemon, selfshipping (non-sharing), & fnaf<br><br>i love r&b & rap; some of my favorite artists are: ginuwine, 50 cent, kwn, xzibit, & rihanna. i all so listen to EDM & punk<br><br>my favorite game is splatoon (surprise), i all so like hollow knight, joseimuke games, & phigros<br><br>kengan ashura, transformers, & metalocalypse are some of my favorite series</p></details><details><summary style="font-size: 100%;" align="center" class="mb8"><u>what im listenin to</u> </summary><p align="center"><p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=51komtp8cyvvtcab3wuasuvt4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=5ca391&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=51komtp8cyvvtcab3wuasuvt4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=5fb49f&bar_color_cover=false">
   </a>
 </p></p></details>
 
