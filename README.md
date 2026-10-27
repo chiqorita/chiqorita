@@ -1,5 +1,5 @@
 <img align="right" src="https://file.garden/aeBUYxXpyQbZMHJ_/marina4">
-<br><p align="center">autumn or fox, she/its, mixed afro-indigenous, '09<br>unlabeled transneu-fem dyke, alterhuman — 🩷<br>i dont typically friend up randos but i'm all for talking</p>
+<br><p align="center">autumn or fox, she/its, mixed afro-indigenous, '09<br>unlabeled transneu-fem dyke, alterhuman — 🩷<br>i dont normally friend up randos but i'm all for talking</p>
 <p align="center">no dni or whatever, nobody rlly gaf anyway<br>i'll find out if i rock with you either thru talking to you<br></bt>or thru ur github cuz sum of yall mfs is WEIRDUH</p>
 <p align="center">no strawpage, no rentry, no nothin. if you wna get<br>to know me just talk to me!</p>
 
